@@ -1,0 +1,1 @@
+estas sao as licencas
